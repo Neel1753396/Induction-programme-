@@ -40,5 +40,10 @@ The last class of the day was a P2P (Peer-to-Peer) session. Our seniors taught u
 
 And that’s how our third day at college ended—full of new things to learn and fun experience.
 
+#4 day
+## 5 August
+The fourth day at college began with an unexpected twist. As I arrived in the afternoon, buzzing with excitement for the day ahead, the schedule suddenly changed just before the first lecture in the auditorium. Amidst the confusion, each branch was directed to their respective allotted classrooms where our seniors awaited us eagerly. In our hour-long class session, we introduced ourselves one by one, breaking the ice and getting to know our peers. Our seniors enlightened us about various club activities and upcoming events, setting the tone for our college journey.
 
- 
+Later, we gathered again in the auditorium for a captivating lecture by Mrs. Shaffy Makkar on the wonders of millets as a superfood. The atmosphere was engaging, with Mrs. Makkar delving into the nutritional benefits of millets, emphasizing their protein content and sharing insights into their culinary history. Her interactive approach encouraged many students, including myself, to actively participate, making the lecture both informative and enjoyable.
+
+The day concluded with a sense of camaraderie and newfound knowledge about millets, leaving us eager for more enriching experiences in the days to come. As a college fresher, each day brings new surprises and opportunities for learning, and I look forward to embracing all that this journey has to offer.
