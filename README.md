@@ -25,7 +25,7 @@ After a short break, we had two tests—one in English and one in Maths. The tes
 
 The day ended well, and I felt proud. I’m excited for what’s coming next in college.
 
-## third say 
+## third day 
 ## 4 August
 
 My Third Day of College
