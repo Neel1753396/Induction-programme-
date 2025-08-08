@@ -25,4 +25,20 @@ After a short break, we had two tests—one in English and one in Maths. The tes
 
 The day ended well, and I felt proud. I’m excited for what’s coming next in college.
 
+## third say 
+## 4 August
 
+My Third Day of College
+
+Our third day of college started with a session by the Causmic Club in the auditorium. We were told that this club was started in 2025 to plan and manage college events and activities. They also gave us a short and helpful tutorial on how to make a GitHub account and upload our projects there. Many of us found it new and interesting.
+
+After that, we had a session on Human Resource Values by Dr. Priya Darshani ma’am. She continued the topic from her last class and explained more about it. The information was useful, but the session was a bit long, and honestly, some students started to feel a little bored.
+
+After the break, we had our first proper subject classes. The first one was English, taught by Prof. Nisha. It was a fun and interactive class. Everyone got a chance to introduce themselves, and she also shared some grammar tips to help us speak more confidently.
+
+The last class of the day was a P2P (Peer-to-Peer) session. Our seniors taught us the basics of the C++ programming language. They also gave us small code examples to try on our laptops using a compiler. This made the session more practical and interesting.
+
+And that’s how our third day at college ended—full of new things to learn and fun experience.
+
+
+ 
