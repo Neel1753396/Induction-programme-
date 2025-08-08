@@ -40,7 +40,7 @@ The last class of the day was a P2P (Peer-to-Peer) session. Our seniors taught u
 
 And that’s how our third day at college ended—full of new things to learn and fun experience.
 
-#4 day
+# 4 day
 ## 5 August
 The fourth day at college began with an unexpected twist. As I arrived in the afternoon, buzzing with excitement for the day ahead, the schedule suddenly changed just before the first lecture in the auditorium. Amidst the confusion, each branch was directed to their respective allotted classrooms where our seniors awaited us eagerly. In our hour-long class session, we introduced ourselves one by one, breaking the ice and getting to know our peers. Our seniors enlightened us about various club activities and upcoming events, setting the tone for our college journey.
 
